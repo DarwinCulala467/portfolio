@@ -1,0 +1,1 @@
+ang aso ay tumalon ng mataas sa bakuran ng kapitbahay
