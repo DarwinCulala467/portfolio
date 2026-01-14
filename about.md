@@ -1,1 +1,1 @@
-ang aso ay tumalon ng mataas sa bakuran ng kapitbahay, pero nasubsob at umipit ang yag balls nya
+ang aso ay tumalon ng mataas sa bakuran ng kapitbahay, pero nasubsob at umipit ang yag balls nya, ito ay napunit
